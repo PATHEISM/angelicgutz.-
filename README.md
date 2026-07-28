@@ -24,6 +24,6 @@
 <p align="center"><img width="74" height="18" alt="Hello-IMG1721006664316" src="https://github.com/user-attachments/assets/46bc3476-891b-4c90-88f7-cb328ff3bc77" /></p> 
 
 <h1 align="center">︵︵︵ ๑ ♡ ๑ ︵︵︵</h2>
-<p align="center">$\color{#3C9688}{\text{༄ @pt-walk-of-fameㅤ@pt-fashion .}}$</p>
+<p align="center">$\color{#3C9688}{\text{༄ ㅤ@𝙥𝙩-𝙬𝙖𝙡𝙠-𝙤𝙛-𝙛𝙖𝙢𝙚ㅤ@𝙥𝙩-𝙛𝙖𝙨𝙝𝙞𝙤𝙣 ㅤ@𝙥𝙩-𝙝𝙖𝙡𝙡-𝙤𝙛-𝙢𝙚𝙙𝙞𝙖 .}}$</p>
 
 
