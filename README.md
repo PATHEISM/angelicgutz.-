@@ -8,7 +8,7 @@
 
 
 
-![Profile GIF](f4d23353ba0045602637427a4eb65e63-ezgif.com-resize.gif)
+![Profile GIF](https://www.image2url.com/r2/default/gifs/1785774626868-c1539f3a-532f-4993-b77c-7d494ea25572.gif)
 
 
 
