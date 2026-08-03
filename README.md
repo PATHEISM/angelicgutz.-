@@ -1,7 +1,7 @@
 <h1 align="center">______๑♡⁠๑______</h2>
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=flohwalzer&label=⏱&color=3C3489&style=plastic" alt="Profile Views"/>
+  <img src="https://komarev.com/ghpvc/?username=flohwalzer&label=⏱&color=5A1FB5&style=plastic" alt="Profile Views"/>
 
 
 
@@ -19,11 +19,11 @@
   <a href="https://angelfangz.atabook.org/">ATA</a>
 </p>
 
-<p align="center">$\color{#3C3489}{\text{༄ 𝙘𝙝𝙚𝙘𝙠 𝙤𝙪𝙩 𝙢𝙮 𝙨𝙞𝙩𝙚𝙨 .}}$</p>
-<p align="center">$\color{#3C3489}{\text{༄ 𝙋𝙎, 𝙞 𝙬𝙞𝙡𝙡 𝙨𝙖𝙮 𝙨𝙡𝙪𝙧𝙨 𝙞 𝙘𝙖𝙣 𝙧𝙚𝙘𝙡𝙖𝙞𝙢 .}}$</p>
+<p align="center">$\color{#5A1FB5}{\text{༄ 𝙘𝙝𝙚𝙘𝙠 𝙤𝙪𝙩 𝙢𝙮 𝙨𝙞𝙩𝙚𝙨 .}}$</p>
+<p align="center">$\color{#5A1FB5}{\text{༄ 𝙋𝙎, 𝙞 𝙬𝙞𝙡𝙡 𝙨𝙖𝙮 𝙨𝙡𝙪𝙧𝙨 𝙞 𝙘𝙖𝙣 𝙧𝙚𝙘𝙡𝙖𝙞𝙢 .}}$</p>
 <p align="center"><img width="74" height="18" alt="Hello-IMG1721006664316" src="https://github.com/user-attachments/assets/46bc3476-891b-4c90-88f7-cb328ff3bc77" /></p> 
 
 <h1 align="center">︵︵︵ ๑ ♡ ๑ ︵︵︵</h2>
-<p align="center">$\color{#3C3489}{\text{༄ ㅤ@𝙥𝙩-𝙬𝙖𝙡𝙠-𝙤𝙛-𝙛𝙖𝙢𝙚ㅤ@𝙥𝙩-𝙛𝙖𝙨𝙝𝙞𝙤𝙣 ㅤ@𝙥𝙩-𝙝𝙖𝙡𝙡-𝙤𝙛-𝙢𝙚𝙙𝙞𝙖 .}}$</p>
+<p align="center">$\color{#5A1FB5}{\text{༄ ㅤ@𝙥𝙩-𝙬𝙖𝙡𝙠-𝙤𝙛-𝙛𝙖𝙢𝙚ㅤ@𝙥𝙩-𝙛𝙖𝙨𝙝𝙞𝙤𝙣 ㅤ@𝙥𝙩-𝙝𝙖𝙡𝙡-𝙤𝙛-𝙢𝙚𝙙𝙞𝙖 .}}$</p>
 
 
