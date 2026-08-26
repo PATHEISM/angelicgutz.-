@@ -19,13 +19,22 @@
   <a href="https://cybrangel.atabook.org/">ATA</a>
 
    
-   <p align="center">
-  <a href="https://github.com/emmmzi">EMI MI GUDUUU💝</a> &nbsp;‎𔘓&nbsp;
-    <a href="https://github.com/3uphoriclove">LILI HI SCHATTEPATATJE💝</a> &nbsp;‎𔘓&nbsp;   
-    <a href="https://github.com/neonmelancholy">PIX STOP CHANGING UR GIT BRO </a> &nbsp;‎𔘓&nbsp;
-     <a href="https://github.com/purestangel">NOVA EW YOU SMELL </a> &nbsp;‎𔘓&nbsp;<a href="https://github.com/berrybluey">BERRY HI PAPI 🤤🤞</a> &nbsp;‎𔘓&nbsp;   
 
-ok im adding other oomfs soon okido
+<div align="center">
+  <details>
+<summary><b> tap</b></summary>
+<br>
+
+<p align="center">
+  <a href="https://github.com/">EMI MI GUDU</a> ♡ 
+  <a href="https://github.com/">LILI MIJN SCHATTEPATATJE</a>
+</p>
+
+</details>
+this s a wip k?... 
+
+     
+
 
 
 <p align="center"><img width="74" height="18" alt="Hello-IMG1721006664316" src="https://github.com/user-attachments/assets/46bc3476-891b-4c90-88f7-cb328ff3bc77" /></p> 
