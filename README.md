@@ -22,8 +22,8 @@
    <p align="center">
   <a href="https://github.com/emmmzi">EMI MI GUDUUU💝</a> &nbsp;‎𔘓&nbsp;
     <a href="https://github.com/3uphoriclove">LILI HI SCHATTEPATATJE💝</a> &nbsp;‎𔘓&nbsp;   
-    <a href="https://github.com/neonmelancholy">PIX (STOP CHANGING UR GIT BRO) </a> &nbsp;‎𔘓&nbsp;
-     <a href="https://github.com/purestangel">NOVA (EW YOU SMELL) </a> &nbsp;‎𔘓&nbsp;<a href="https://github.com/berrybluey">BERRY (HI PAPI) 🤤🤞</a> &nbsp;‎𔘓&nbsp;   
+    <a href="https://github.com/neonmelancholy">PIX STOP CHANGING UR GIT BRO </a> &nbsp;‎𔘓&nbsp;
+     <a href="https://github.com/purestangel">NOVA EW YOU SMELL </a> &nbsp;‎𔘓&nbsp;<a href="https://github.com/berrybluey">BERRY HI PAPI 🤤🤞</a> &nbsp;‎𔘓&nbsp;   
 
 ok im adding other oomfs soon okido
 
