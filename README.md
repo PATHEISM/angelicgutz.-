@@ -22,7 +22,7 @@
 
 <div align="center">
   <details>
-<summary><b> tap</b></summary>
+<summary><b> Եᥲ⍴ㅤ 2ㅤ sᥱᥱㅤ ᥆᥆m𝖿sㅤ</b></summary>
 <br>
 
 <p align="center">
@@ -31,7 +31,7 @@
 </p>
 
 </details>
-this s a wip k?... 
+THIS IS STILL A WIP DONT LOOK😭😂
 
      
 
