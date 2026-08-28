@@ -1,7 +1,7 @@
 ![Mijn Afbeelding](https://cdn.phototourl.com/free/2026-08-28-a837ce60-72b6-4167-9d1d-e5a8ec016e81.png)
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=flohwalzer&label=ೀ&color=D93B50&style=square" alt="Profile Views"/>
+  <img src="https://komarev.com/ghpvc/?username=flohwalzer&label=ೀ&color=8E6989&style=square" alt="Profile Views"/>
 
 
 ![Alt-tekst](https://www.image2url.com/r2/default/gifs/1787939214414-2683e0b1-94dc-4c64-b204-bee0a37c6d5a.gif)
