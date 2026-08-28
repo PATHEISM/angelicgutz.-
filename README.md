@@ -4,6 +4,7 @@
   <img src="https://komarev.com/ghpvc/?username=flohwalzer&label=ೀ&color=D93B50&style=square" alt="Profile Views"/>
 
 
+![Alt-tekst](https://www.image2url.com/r2/default/gifs/1787939214414-2683e0b1-94dc-4c64-b204-bee0a37c6d5a.gif)
 
    
 
