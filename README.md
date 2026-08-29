@@ -20,7 +20,7 @@
 
 </details>
 
-$\color{#858E72}\text{dark}$ $\color{#886985}\text{mode}$ $\color{#858E72}\text{is}$ $\color{#9C698A}\text{recommended :꣓}$
+$\color{#909C73}\text{dark}$ $\color{#886985}\text{mode}$ $\color{#909C73}\text{is}$ $\color{#9C698A}\text{recommended :꣓}$
  
 
 
