@@ -29,7 +29,7 @@ $\color{#909C73}\text{dark}$ $\color{#886985}\text{mode}$ $\color{#909C73}\text{
 
   [![Alt Text](https://cdn.phototourl.com/free/2026-08-29-cbcf6efc-5d0e-4780-afea-6fdf45c00020.png)](https://guns.lol/kittenclaws)
 
-[![Alt Text](https://cdn.phototourl.com/free/2026-08-29-4fd2b6a1-2257-40b7-bcb0-2c8677c7df8a.png)]((https://cybrangel.atabook.org))
+[![Alt Text](https://cdn.phototourl.com/free/2026-08-29-4fd2b6a1-2257-40b7-bcb0-2c8677c7df8a.png)](https://cybrangel.atabook.org)
 
 [![Alt Text](https://cdn.phototourl.com/free/2026-08-29-e0483f16-3613-44c8-9c78-9136d243732c.png)](Website_URL)
 
