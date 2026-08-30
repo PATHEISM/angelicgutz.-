@@ -14,9 +14,14 @@
 <br>
 
 <p align="center">
-  <a href="https://github.com/">EMI MI GUDU</a> ♡ 
-  <a href="https://github.com/">LILI MIJN SCHATTEPATATJE</a>
+  <a href="https://github.com/emmmzi">EMI MI GUDU</a> ♡ 
+  <a href="https://github.com/3uphoriclove">LILI MIJN SCHATTEPATATJE</a>
+  <a href="https://github.com/evostrike">pix stop CHANGING ur git</a>
+  <a href="https://github.com/SlX-EYES">len (homophobic and racist also fatphobe btw) :////)</a>
+  <a href="https://github.com/">ok who else to add</a>
 </p>
+
+
 
 </details>
 
